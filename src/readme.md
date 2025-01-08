@@ -1,0 +1,6 @@
+Las personas que afirman que son malvadas generalmente no son peores que el resto de nosotros... Son las personas las que afirman que son buenas, o de alguna manera mejores que el resto de nosotros, de las que debes tener cuidado.
+Y las chicas necesitan ira fría. Necesitan el frío a fuego lento, el rencor incesante, el talento para evitar el perdón, el paso lateral del compromiso. Necesitan saber cuándo dicen algo que nunca retrocederán, nunca, nunca.
+“Dejó caer su timidez como un camisón, y en el resplandor líquido de la luz del sol en tablas viejas levantó las manos, como si, en el terror de la próxima escaramuza, al fin hubiera entendido que era hermosa. A su manera.”
+“A la gente siempre le gustaba hablar, ¿no? Es por eso que me llamo bruja ahora: la Bruja malevola del Oeste, si quieres la gloria completa de ella. Mientras la gente te llame loco de todos modos, ¿por qué no obtener el beneficio de ello? Te libera de convention.”     
+¿Y la Bruja? En la vida de una Bruja, no hay un después, ni un para siempre, ni un vivieron felices; en la historia de una Bruja, no hay epílogo. De la otra parte que queda más allá de la historia vital, más allá de la historia de la vida, no hay (por desgracia, o tal vez por fortuna) nada que decir.
+ La Bruja estaba muerta, muerta y enterrada, y lo único que quedó de ella fue el envoltorio exterior de su fama de malevola
